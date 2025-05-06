@@ -25,7 +25,7 @@ Acompanhamento de pedidos digitais e cumprimento de metas de vendas.
 
 Suporte à equipe com agilidade e responsabilidade.
 
-Auditor de Atendimento
+💼 Auditor de Atendimento
 Atento Brasil S.A. – São José dos Campos/SP
 📅 Ago/2007 – Ago/2014
 
